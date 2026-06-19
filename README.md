@@ -181,7 +181,7 @@ The analysis provides valuable insights into accident causes, risk zones, and se
 
 ### Connect With Me
 
-* 💼 LinkedIn: https://www.linkedin.com/in/muhammed-rinshad
+* 💼 LinkedIn: www.linkedin.com/in/muhammad-rinshad-80760437a
 * 💻 GitHub: https://github.com/rinshadrin
 
 ---
